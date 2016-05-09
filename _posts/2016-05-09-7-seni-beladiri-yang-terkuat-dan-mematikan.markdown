@@ -4,6 +4,7 @@ title: 7 Seni Beladiri yang Terkuat dan Mematikan
 layout: post
 ---
 Seni beladiri pada dasarnya diciptakan agar pikiran dan tubuh terasah, bisa juga dikatakan sebagai penyeimbang spiritual. Dari sekian banyak jenis beladiri yang ada didunia beberapa diantaranya memiliki moto tidak akan menyerang terlebih dahulu jika tidak mendapat ancaman atau diserang bahaya. 
+
 Kita mungkin sudah mengenal banyak jenis beladiri diri, tapi dibawah ini ada 7 seni beladiri yang terkuat juga mematikan, wajar saja jika pemilik beladiri ini begitu ditakuti :
 
 1. Silat
@@ -16,7 +17,7 @@ Jika kamu suka dengan film-film bernuansa negeri cina  tentunya tak asing lagi d
 Meski berasal dari Korea sebenarnya beladiri ini juga cukup terkenal di Indonesia, karena banyak sekolah-sekolah yang memperkenalkan beladiri Taekwondo lewat program ekstrakulikuler. Taekwondo yang berarti menendang dan meninju memang menekankan serangan lewat kedua serangan tersebut, terutama gerakan kaki menendang dengan keras dan dapat menjatuhkan lawan seketika. 
 
 4. Muay Thai
-Banyak jenis beladiri yang kita ketahui dari film-film, begitu juga dengan beladiri asal thailand ini, bagi kamu yang pernah menyaksikan film Ong Bak tentu sudah tahu apa itu beladiri Muay Thai. Beladiri ini memfokuskan kekuatannya pada kepalan, siku, tulang kering, lutut, dan bagian tubuh lainnya untuk menghajar musuh.
+Banyak jenis beladiri yang kita ketahui dari film-film, begitu juga dengan beladiri asal thailand ini, bagi kamu yang pernah menyaksikan film Ong Bak tentu sudah tahu apa itu beladiri Muay Thai. <a href="http://gobagi.com/pilihan-bela-diri-praktis-untuk-pria-metropolis/">beladiri praktis untuk pria</a> ini memfokuskan kekuatannya pada kepalan, siku, tulang kering, lutut, dan bagian tubuh lainnya untuk menghajar musuh.
 
 5. Marine Corps Martial Arts Programs (MCMAP)
 Para marinir sudah terbiasa dengan beladiri ini karena memang ini termasuk yang wajib dipelajari dalam pendidikan marinir. MCMAP adalah kombinasi dari mental, disiplin, karakter, fisik, dan tenaga. Manfaatnya agar marinir dapat meningkatkan efisensi tempur dan kepercayaan diri juga kepemimpinan. Pada film yang diproduksi oleh negara Amerika Serikan banyak memasukan unsur beladiri ini. 
