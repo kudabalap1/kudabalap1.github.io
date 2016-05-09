@@ -1,0 +1,10 @@
+excerpt_separator: ""
+pygments: true
+markdown: kramdown
+url: http://kudabalap1.github.io
+title: Blog Kuda Balap
+email: ranisa298@gmail.com
+author: beladiri praktis
+description: blog kuda untuk balapan
+paginate: 5
+google_analytics: 
