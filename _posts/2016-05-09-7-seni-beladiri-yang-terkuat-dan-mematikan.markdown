@@ -3,7 +3,9 @@ published: true
 title: 7 Seni Beladiri yang Terkuat dan Mematikan
 layout: post
 ---
-Seni beladiri pada dasarnya diciptakan agar pikiran dan tubuh terasah, bisa juga dikatakan sebagai penyeimbang spiritual. Dari sekian banyak jenis beladiri yang ada didunia beberapa diantaranya memiliki moto tidak akan menyerang terlebih dahulu jika tidak mendapat ancaman atau diserang bahaya. 
+Seni beladiri pada dasarnya diciptakan agar pikiran dan tubuh terasah, bisa juga dikatakan sebagai penyeimbang spiritual. Dari sekian banyak jenis beladiri yang ada didunia beberapa diantaranya memiliki moto tidak akan menyerang terlebih dahulu jika tidak mendapat ancaman atau diserang bahaya.
+
+<img src="http://1.bp.blogspot.com/-L0BTKdSl5YE/TcSqRHtRamI/AAAAAAAAHVk/-stY1U882Z0/s1600/beladiri+wanita%252C+korban+kejahatan%252C+korban+perkosaan%252C+cara+membela+diri%252C+tehnik+beladiri%252C+.jpg" alt="Mountain View" style="width:304px;height:228px;">
 
 Kita mungkin sudah mengenal banyak jenis beladiri diri, tapi dibawah ini ada 7 seni beladiri yang terkuat juga mematikan, wajar saja jika pemilik beladiri ini begitu ditakuti :
 
